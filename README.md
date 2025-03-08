@@ -3,7 +3,7 @@
  - 👀 I’m interested in machine learning
  - 🌱 I’m currently learning nothing and everything at the same time
  - 📫 You can message to me via [Telegram](https://t.me/Kisel130)
- - 😄 Pronouns: Оне/Евойный/Ихний/Ихтиандр (It's just a joke, I'm a heterosexual male)
+ - 😄 Pronouns: Оне/Евойный/Ихний/Ихтиандр (JK)
  - ⚡ I'm just a thirteen-year-old schoolboy from Russia.
 
 # Projects I'm currently working on:
